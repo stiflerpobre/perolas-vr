@@ -307,7 +307,9 @@ __________________________________________________________
 # Perolas Nathan
 
 Guilherme teu almoço cheguei - 24/01/2022
+
 Como chama aquelas pessoas que rejeitam as coisas.... Resposta: negacionista - 25/04/2022
+
 Será que pelo menos aqui meu pull request vai ser aceito de primeira? 10/06/2022
 
 
