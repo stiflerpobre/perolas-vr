@@ -216,6 +216,7 @@ a academia agora tá cheio de viado, antes era só eu - 31/03/2022
 
 VK poem dois dedinhos só - 03/06/2022
 
+VK: queria ter um filho, mas não penso em ter uma esposa. Damon: você tinha que juntar com um homem e fazer inseminação artificial para você ter filho - 14/06/2022 
 ___________________________________________________________
 
 # perolas Taws/BemaTaws
