@@ -314,6 +314,10 @@ Como chama aquelas pessoas que rejeitam as coisas.... Resposta: negacionista - 2
 Será que pelo menos aqui meu pull request vai ser aceito de primeira? 10/06/2022
 
 
+----------------
 
+# Perolas do Lucas Segundo (filho do "Que nem pega")
+
+Barbosa: Esse Pentium Gold é bom? Lucas: O Pentium Gold bate de frente com o i5. Barbosa: Nossaaaa Lucas: i5 3a. geração. (falou serio como se estivesse convencendo o cliente) - 15/06/2022
 
 
