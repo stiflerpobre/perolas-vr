@@ -316,6 +316,9 @@ Como chama aquelas pessoas que rejeitam as coisas.... Resposta: negacionista - 2
 Será que pelo menos aqui meu pull request vai ser aceito de primeira? 10/06/2022
 
 As vezes dá impressão que é grande né, .... o relógio - 21/06/2022
+
+depende do que você vai fazer no dentista, por lá tem ortopedista, .... - 2206/2022
+
 ----------------
 
 # Perolas do Lucas Segundo (filho do "Que nem pega")
