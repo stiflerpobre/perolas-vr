@@ -218,7 +218,9 @@ VK poem dois dedinhos só - 03/06/2022
 
 quem bate bronha pra outro cara, é gay? - 15/06/2022
 
-VK: queria ter um filho, mas não penso em ter uma esposa. Damon: você tinha que juntar com um homem e fazer inseminação artificial para você ter filho - 14/06/2022 
+VK: queria ter um filho, mas não penso em ter uma esposa. Damon: você tinha que juntar com um homem e fazer inseminação artificial para você ter filho - 14/06/2022
+
+Lemos, você vai usar um terno slim mesmo sendo gordo? - 24/06/2022
 ___________________________________________________________
 
 # perolas Taws/BemaTaws
