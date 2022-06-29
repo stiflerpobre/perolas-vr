@@ -327,4 +327,8 @@ depende do que você vai fazer no dentista, por lá tem ortopedista, .... - 2206
 
 Barbosa: Esse Pentium Gold é bom? Lucas: O Pentium Gold bate de frente com o i5. Barbosa: Nossaaaa Lucas: i5 3a. geração. (falou serio como se estivesse convencendo o cliente) - 15/06/2022
 
+-----------------
 
+# Pérolas Márcio
+
+Você sabia que o primeiro clube do Brasil foi o Barra Mansa (tudo barra mansa puxa saco da cidade) - 29/6/2022 em Porto Alegre falando para os gaúcho
