@@ -331,4 +331,4 @@ Barbosa: Esse Pentium Gold é bom? Lucas: O Pentium Gold bate de frente com o i5
 
 # Pérolas Márcio
 
-Você sabia que o primeiro clube do Brasil foi o Barra Mansa (tudo barra mansa puxa saco da cidade) - 29/6/2022 em Porto Alegre falando para os gaúcho
+Você sabia que o primeiro clube do Brasil foi o Barra Mansa (bm fundou em 1908 e Vasco é de 1882) - 29/6/2022 em Porto Alegre falando para os gaúcho
