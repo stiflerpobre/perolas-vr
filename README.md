@@ -85,6 +85,15 @@ quero bater meu pinto - 18/06/2021
 FC: vou embora, Breno: vamos ficar aí po, FC: mas eu não vou dormir aqui não, Breno: mas não vamos dormir não. - 23/06/2021 
 
 Damon, bate bola, jogo rápido - 15/07/2021
+
+Bom dia, alguém pegou a BLUSA DE FRIO?
+
+eu venho perguntando a parada na moral e geral ficando de graça, po glr, ai é foda, ainda ficam alimentando isso de que eu quero arranjar treta com fulano e ciclano, eu não tenho treta com ngm cara, esse tipo de brincadeira não tem graça...
+
+vou falar mais nada não pq quanto mais eu falo pior as coisas ficam, se alguém souber da BLUSA DE FRIO favor me avisar, vlw.
+
+
+to querendo nada não Yanna, só quero saber onde ta a BLUSA DE FRIO que o André comprou pra mim, pq eu me ausentei para almoçar, e quando volto ela sumiu, vocês que ficam aumentando as coisas.
 ____________________________________________________________
 
 # Perolas do Ricardo
