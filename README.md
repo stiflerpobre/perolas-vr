@@ -98,6 +98,15 @@ o negócio é pegar o butão - 12/04
 luiz ta arrebentando geral - 11/05/2021
 
 eu demorei 7 anos pra colocar um gato dentro de casa, tirando eu - 21/05/2021
+
+Bom dia, alguém pegou a CADEIRA (número 18) do Léo?
+
+eu venho perguntando a parada na moral e geral ficando de graça, po glr, ai é foda, ainda ficam alimentando isso de que eu quero arranjar treta com fulano e ciclano, eu não tenho treta com ngm cara, esse tipo de brincadeira não tem graça...
+
+vou falar mais nada não pq quanto mais eu falo pior as coisas ficam, se alguém souber da CADEIRA (número 18) favor me avisar, vlw.
+
+
+to querendo nada não Lucas, só quero saber onde ta a CADEIRA (número 18) que o Jorge comprou pra mim, pq eu me ausentei para almoçar, e quando volto ela sumiu, vocês que ficam aumentando as coisas.
 ___________________________________________________________
 
 # Perolas do FC (frio de calculista)
