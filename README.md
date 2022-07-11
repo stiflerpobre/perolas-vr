@@ -204,6 +204,8 @@ aqui dentro eu já sofri com todo tipo de abuso - 17/03/2022
 
 lemos para o VK: vc aguenta o saco todo? - 22/03/2022
 
+Damon: quando é a reunião? Lemos: Quarta, mas você não foi convidado, é só pra gerente(Damon chora). 
+
 ___________________________________________________________ 
 
 # perolas Damon
