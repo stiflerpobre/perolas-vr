@@ -327,6 +327,8 @@ tem uma amiga sua que fez farmácia também né? quem? a Flávia?, nem lembrou d
 po lemos vc tem que ir no fonoaudiologo( médico de ouvido) - 23/12/2021
 
 nuss, está com cheiro de nuvem - 10/01/2022
+
+de todo o certo, ta errado - 12/07/2022
 __________________________________________________________
 
 # Perolas Nathan
