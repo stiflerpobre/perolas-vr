@@ -190,6 +190,8 @@ Tem coisas que você não vai aprender na faculdade, (só comigo) - 18/04/2022
 my dick is so - 05/05/2022
 
 Damon antigamente eu te achava escrota, hoje em dia nem tanto - 18/05/2022
+
+a produtividade do Lemos é baixa - 13/07/2022
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
