@@ -208,6 +208,8 @@ lemos para o VK: vc aguenta o saco todo? - 22/03/2022
 
 Damon: quando é a reunião? Lemos: Quarta, mas você não foi convidado, é só pra gerente(Damon chora). 11/07/2022
 
+Está entre 100 e cento e pouco - 12/07/2022
+
 ___________________________________________________________ 
 
 # perolas Damon
