@@ -326,6 +326,8 @@ eu pareço com o de bruyne, mas eu e o modric estamos pau a pau - 05/05/2022
 igualzinho o inglês do sul da áfrica do norte - 14/07/2022
 
 Nathan, dando a cifra pra você, você toca né - 25/07/2022
+
+esqueço de abrir direto - 27/07/2022
 __________________________________________________________
 
 # Perolas Ludmilla/BioMEDICINA
