@@ -370,3 +370,11 @@ Você sabia que o primeiro clube do Brasil foi o Barra Mansa (bm fundou em 1908 
 # Duda / Eduardo
 
 Phelps de Wakanda e Bots dos mares - apelidando o Diogo - 29/6/2022
+
+
+--------------
+
+# Gustavo Flex
+
+Vocês estão falando aí, mas quem toma na bunda sou eu - 03/08/2022
+
