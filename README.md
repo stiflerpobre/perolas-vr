@@ -194,6 +194,8 @@ Damon antigamente eu te achava escrota, hoje em dia nem tanto - 18/05/2022
 a produtividade do Lemos é baixa - 13/07/2022
 
 se tiver errado eu pago com a rosquinha - 08/08/2022
+
+da uma olhada no meu botão - 08/08/2022
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
