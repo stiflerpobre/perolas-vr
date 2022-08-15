@@ -214,7 +214,7 @@ Damon: quando é a reunião? Lemos: Quarta, mas você não foi convidado, é só
 
 Está entre 100 e cento e pouco - 12/07/2022
 
-A sua burrice supera a inteligência das meninas do teste - 15/08/2022
+Diogo, a sua burrice supera a inteligência das meninas do teste - 15/08/2022
 
 ___________________________________________________________ 
 
