@@ -216,6 +216,8 @@ Está entre 100 e cento e pouco - 12/07/2022
 
 Diogo, a sua burrice supera a inteligência das meninas do teste - 15/08/2022
 
+Atrás geralmente é melhor - 26/08/2022
+
 ___________________________________________________________ 
 
 # perolas Damon
