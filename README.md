@@ -218,6 +218,8 @@ Diogo, a sua burrice supera a inteligência das meninas do teste - 15/08/2022
 
 Atrás geralmente é melhor - 26/08/2022
 
+Pra quem não aguenta duas, tem que tomar uma bola só - 01/09/2022
+
 ___________________________________________________________ 
 
 # perolas Damon
