@@ -220,7 +220,7 @@ Atrás geralmente é melhor - 26/08/2022
 
 Pra quem não aguenta duas, tem que tomar uma bola só - 01/09/2022
 
-Nathan, você está conseguindo comer o negócio duro mesmo - 26/09/2022 (questionando sobreo o açai congelado)
+Nathan, você está conseguindo comer o negócio duro mesmo ? - 26/09/2022 (questionando sobreo o açai congelado)
 
 ___________________________________________________________ 
 
