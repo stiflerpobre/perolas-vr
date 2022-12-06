@@ -94,6 +94,18 @@ vou falar mais nada não pq quanto mais eu falo pior as coisas ficam, se alguém
 
 
 to querendo nada não Yanna, só quero saber onde ta a BLUSA DE FRIO que o André comprou pra mim, pq eu me ausentei para almoçar, e quando volto ela sumiu, vocês que ficam aumentando as coisas.
+
+```
+Boa tarde, alguém pegou a minha CADEIRA? 
+
+eu venho perguntando a parada na moral e geral ficando de graça, po glr, ai é foda, ainda ficam alimentando isso de que eu quero arranjar treta com fulano e ciclano, eu não tenho treta com ngm cara, esse tipo de brincadeira não tem graça...
+
+vou falar mais nada não pq quanto mais eu falo pior as coisas ficam, se alguém souber da minha CADEIRA favor me avisar, vlw.
+
+
+to querendo nada não Yanna, só quero saber onde ta a minha CADEIRA que o andre comprou pra mim, pq eu me ausentei por causa de covid, e quando volto ele foi trocado, vocês que ficam aumentando as coisas
+
+```
 ____________________________________________________________
 
 # Perolas do Ricardo
