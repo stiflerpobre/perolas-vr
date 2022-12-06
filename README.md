@@ -398,3 +398,9 @@ Phelps de Wakanda e Bots dos mares - apelidando o Diogo - 29/6/2022
 
 Vocês estão falando aí, mas quem toma na bunda sou eu - 03/08/2022
 
+--------------
+
+# Braçin
+
+Nathan, você quer colocar a boca aqui?(açaí) - 06/12/2022
+
