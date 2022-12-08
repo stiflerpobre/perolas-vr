@@ -418,3 +418,8 @@ Vocês estão falando aí, mas quem toma na bunda sou eu - 03/08/2022
 
 Nathan, você quer colocar a boca aqui?(açaí) - 06/12/2022
 
+____________________________________________________________
+
+# Oliveira
+
+Por apenas 10 reais eu tiro a foto do seu sonho - 07/12/2022
