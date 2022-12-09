@@ -417,6 +417,7 @@ Vocês estão falando aí, mas quem toma na bunda sou eu - 03/08/2022
 # Braçin
 
 Nathan, você quer colocar a boca aqui?(açaí) - 06/12/2022
+Eu já apalpei a parada já - 09/12/2022
 
 ____________________________________________________________
 
