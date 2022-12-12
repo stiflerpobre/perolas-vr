@@ -210,6 +210,8 @@ se tiver errado eu pago com a rosquinha - 08/08/2022
 da uma olhada no meu botão - 08/08/2022
 
 Damon: e aí Diogo você foi comido no avião? Diogo: fui, ops... - 17/10/2022
+
+O Lemos não tem muita credibilidade não - 12/12/2022
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
