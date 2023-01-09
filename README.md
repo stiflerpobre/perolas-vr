@@ -389,6 +389,8 @@ Você dorme de um jeito e acorda com outro - 05/09/2022
 
 Não é que eu errei, eu só não acertei - 08/12/2022
 
+Eu vim pela comida - 09/01/2023
+
 ----------------
 
 # Perolas do Lucas Segundo (filho do "Que nem pega")
