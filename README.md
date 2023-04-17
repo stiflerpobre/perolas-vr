@@ -395,7 +395,9 @@ Não é que eu errei, eu só não acertei - 08/12/2022
 
 Eu vim pela comida - 09/01/2023
 
-[Nathan cancelado no chat](https://p190.p3.n0.cdn.getcloudapp.com/items/6qubJLKA/91da74cf-3200-4be7-a4e3-d2b8049a2117.png?v=efc060e7cc257de1a48c00e4507feab4) - 17/04/2023
+Nathan cancelado no chat- 17/04/2023
+
+![nathan](https://p190.p3.n0.cdn.getcloudapp.com/items/6qubJLKA/91da74cf-3200-4be7-a4e3-d2b8049a2117.png?v=efc060e7cc257de1a48c00e4507feab4)
 
 ----------------
 
