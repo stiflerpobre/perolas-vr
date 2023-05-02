@@ -279,6 +279,8 @@ VK: queria ter um filho, mas não penso em ter uma esposa. Damon: você tinha qu
 Lemos, você vai usar um terno slim mesmo sendo gordo? - 24/06/2022
 
  prefiro tomar lambendo - 15/08/2022
+ 
+ se o lucas colocar uma peruca, eu saio com ele desfilando na cidade - 02/05/2023
 ___________________________________________________________
 
 # perolas Taws/BemaTaws
