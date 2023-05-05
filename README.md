@@ -216,6 +216,10 @@ O Lemos não tem muita credibilidade não - 12/12/2022
 Diogo vira e fala pro Damon depois de terminar a live com o Nathan: Voce ta treinando ele com o senso de WarShip? Digo, WannaShip? - Ai o Lemos perguntou: Voce nao quis dizer "ownership"?. (Batalha naval = eu quero barco = propriedade) - 07/03/2023
 
 E aí Lemos aprendeu a chupar ? (diogo) - Sim (Lemos) [Tavam falando sobre chupar mixirica]
+
+Nossa Nathan vc com esse cabelo ficou igual rato - 04/05/2023
+
+Damon: Ana vc comprou ou fez o bolo? Ana: eu comprei - Diogo: bom que a gente se livrou dela ter feito - 04/05/2023
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
@@ -367,9 +371,6 @@ esqueço de abrir direto - 27/07/2022
 
 Lemos já acabei, se quiser pode empurrar mais - 19/09/2022
 
-Nossa Nathan vc com esse cabelo ficou igual rato - 04/05/2023
-
-Damon: Ana vc comprou ou fez o bolo? Ana: eu comprei - Diogo: bom que a gente se livrou dela ter feito - 04/05/2023
 __________________________________________________________
 
 # Perolas Ludmilla/BioMEDICINA
