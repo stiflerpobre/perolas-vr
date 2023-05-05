@@ -366,6 +366,10 @@ Nathan, dando a cifra pra você, você toca né - 25/07/2022
 esqueço de abrir direto - 27/07/2022
 
 Lemos já acabei, se quiser pode empurrar mais - 19/09/2022
+
+Nossa Nathan vc com esse cabelo ficou igual rato - 04/05/2023
+
+Damon: Ana vc comprou ou fez o bolo? Ana: eu comprei - Diogo: bom que a gente se livrou dela ter feito - 04/05/2023
 __________________________________________________________
 
 # Perolas Ludmilla/BioMEDICINA
@@ -400,6 +404,8 @@ Eu vim pela comida - 09/01/2023
 Nathan cancelado no chat- 17/04/2023
 
 ![nathan](https://p190.p3.n0.cdn.getcloudapp.com/items/6qubJLKA/91da74cf-3200-4be7-a4e3-d2b8049a2117.png?v=efc060e7cc257de1a48c00e4507feab4)
+
+Mata aí viado (para o daegrick comer as esfirras, diz o nathan que é normal chamar o amigo de viado) 05/05/2023
 
 ----------------
 
