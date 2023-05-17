@@ -220,6 +220,8 @@ E aí Lemos aprendeu a chupar ? (diogo) - Sim (Lemos) [Tavam falando sobre chupa
 Nossa Nathan vc com esse cabelo ficou igual rato - 04/05/2023
 
 Damon: Ana vc comprou ou fez o bolo? Ana: eu comprei - Diogo: bom que a gente se livrou dela ter feito - 04/05/2023
+
+Damon: eu estou levando minha vida ao estilo Daegrick. Diogo: então vc está levando uma vida mediocre - 17/05/2023
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
