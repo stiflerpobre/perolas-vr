@@ -447,3 +447,7 @@ ____________________________________________________________
 # Oliveira
 
 Por apenas 10 reais eu tiro a foto do seu sonho - 07/12/2022
+
+# Ana Beatriz
+
+Diogo: Ana, nessa época você já tinha nascido? Ana: não, eu ainda tava no saco - 15/06/2023
