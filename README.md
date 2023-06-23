@@ -222,6 +222,12 @@ Nossa Nathan vc com esse cabelo ficou igual rato - 04/05/2023
 Damon: Ana vc comprou ou fez o bolo? Ana: eu comprei - Diogo: bom que a gente se livrou dela ter feito - 04/05/2023
 
 Damon: eu estou levando minha vida ao estilo Daegrick. Diogo: então vc está levando uma vida mediocre - 17/05/2023
+
+Diogo estava tentando criar uma enquente no skype - 23/06/2023
+
+![image](https://github.com/oraculum/perolas-vr/assets/77414867/a05363a9-0c2d-4e2b-a6be-915b027978d5)
+![image](https://github.com/oraculum/perolas-vr/assets/77414867/c17ee456-4bef-4679-b5d3-d52cde1a80d1)
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
