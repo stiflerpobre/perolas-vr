@@ -463,7 +463,10 @@ Diogo: Ana, nessa época você já tinha nascido? Ana: não, eu ainda tava no sa
 
 # Barbosa 
 
-``
+```
+
+
 Galera que tá falando de futebol ai, favor criar um grupo só pra vocês e lá vcs add quem está falando de almoço, aqui não é grupo de ficar falando de futebol não 
+
 ```
 
