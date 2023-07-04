@@ -457,3 +457,13 @@ Por apenas 10 reais eu tiro a foto do seu sonho - 07/12/2022
 # Ana Beatriz
 
 Diogo: Ana, nessa época você já tinha nascido? Ana: não, eu ainda tava no saco - 15/06/2023
+
+
+------------------------
+
+# Barbosa 
+
+``
+Galera que tá falando de futebol ai, favor criar um grupo só pra vocês e lá vcs add quem está falando de almoço, aqui não é grupo de ficar falando de futebol não 
+```
+
