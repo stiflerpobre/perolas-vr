@@ -463,6 +463,8 @@ Diogo: Ana, nessa época você já tinha nascido? Ana: não, eu ainda tava no sa
 
 # Barbosa 
 
+- quando reclamou da galera postar coisa de futubol no grupo VR
+
 ```
 
 
@@ -470,3 +472,13 @@ Galera que tá falando de futebol ai, favor criar um grupo só pra vocês e lá 
 
 ```
 
+-----------
+
+# Sarah
+
+- Quando reclamou que alguem levou seu sonho:
+
+```
+Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois comprei para comer aqui mesmo, achei que pudesse, porem hoje fui ver e sumiram com ele e ainda deixaram o saco quase que vazio lá. Não foi nada de muito valor mas é uma situação desagradável, só peço para pelo menos perguntar de quem é, por que eu dividiria sem nenhum problema e para que não ocorra com outra pessoa
+
+```
