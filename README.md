@@ -416,6 +416,8 @@ Nathan cancelado no chat- 17/04/2023
 
 Mata aí viado (para o daegrick comer as esfirras, diz o nathan que é normal chamar o amigo de viado) 05/05/2023
 
+É melhor fazer perfeito do que não fazer 11/07/2023
+
 ----------------
 
 # Perolas do Lucas Segundo (filho do "Que nem pega")
