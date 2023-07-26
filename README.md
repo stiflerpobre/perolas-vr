@@ -418,6 +418,8 @@ Mata aí viado (para o daegrick comer as esfirras, diz o nathan que é normal ch
 
 É melhor fazer perfeito do que não fazer 11/07/2023
 
+Nathan, o que vc prefere, ensinar o joão programação ou fazer vídeos do Etrade? R: fazer vídeos do Etrade.
+
 ----------------
 
 # Perolas do Lucas Segundo (filho do "Que nem pega")
