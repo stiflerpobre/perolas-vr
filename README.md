@@ -228,6 +228,7 @@ Diogo estava tentando criar uma enquente no skype - 23/06/2023
 ![image](https://github.com/oraculum/perolas-vr/assets/77414867/a05363a9-0c2d-4e2b-a6be-915b027978d5)
 ![image](https://github.com/oraculum/perolas-vr/assets/77414867/c17ee456-4bef-4679-b5d3-d52cde1a80d1)
 
+Nathan: Pow, diogo completei 2 anos de VR hoje. - Diogo:(Ignorou completamente o que estava sendo falado, sendo que estava olhando pra ele) Então lucas sobre ontem...
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
