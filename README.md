@@ -229,6 +229,8 @@ Diogo estava tentando criar uma enquente no skype - 23/06/2023
 ![image](https://github.com/oraculum/perolas-vr/assets/77414867/c17ee456-4bef-4679-b5d3-d52cde1a80d1)
 
 Nathan: Pow, diogo completei 2 anos de VR hoje. - Antes de terminar a palavra VR diogo corta completamente o direito de fala para abordar um assunto completamente diferete
+
+Fernando: você ainda é Junior diogo. Diogo: Não cara eu sou um Senior Junior! - 06/09/2023
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
@@ -494,3 +496,11 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 # Wanver Bolseiro
 
 - Pow eu tenho um curso lá em casa de c# que tem 18GB de aulas zipado, mas quando descompacto vira 100MB - 19/07/2023
+
+--------
+
+# João Floppinguim
+
+- Eu fico tomando dos dois lados direto - 06/09/2023
+
+
