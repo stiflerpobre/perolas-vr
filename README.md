@@ -503,4 +503,8 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 
 - Eu fico tomando dos dois lados direto - 06/09/2023
 
+--------
 
+# Jorge (que nem pega)
+
+- Jorge estava arrumando o PC do Lemos. Lemos vira para o Jorge e diz: essa bobeira de trocar a memória é rápido. Jorge diz: pelo menos não levo 15 dias para resolver um Bug igual você!!! A sala toda faz: huummmmmm e o Lemos fica vermelho, não sabemos se de vergonha ou raiva. - 28/09/2023
