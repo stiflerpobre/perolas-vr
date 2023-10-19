@@ -231,6 +231,8 @@ Diogo estava tentando criar uma enquente no skype - 23/06/2023
 Nathan: Pow, diogo completei 2 anos de VR hoje. - Antes de terminar a palavra VR diogo corta completamente o direito de fala para abordar um assunto completamente diferete
 
 Fernando: você ainda é Junior diogo. Diogo: Não cara eu sou um Senior Junior! - 06/09/2023
+
+Diogo chuta o lemos o dia todo, daí vira para o Lemos e diz: meu pé não tem cerca - 19/10/2023
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
@@ -422,6 +424,8 @@ Mata aí viado (para o daegrick comer as esfirras, diz o nathan que é normal ch
 É melhor fazer perfeito do que não fazer 11/07/2023
 
 Nathan, o que vc prefere, ensinar o joão programação ou fazer vídeos do Etrade? R: fazer vídeos do Etrade.
+
+Damon teve problema de pressão alta, estava sendo encaminhado para Unimed em emergência, antes de sair o Nathan pede o código da Stone para terminar a tarefa. Mostrando total falta de empatia com o colega e sensibilidade com a dor alheia. Se você está morrendo não importa, o que importa é eu terminar minha tarefa. 18/10/2023
 
 ----------------
 
