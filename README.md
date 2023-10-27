@@ -427,6 +427,8 @@ Nathan, o que vc prefere, ensinar o joão programação ou fazer vídeos do Etra
 
 Damon teve problema de pressão alta, estava sendo encaminhado para Unimed em emergência, antes de sair o Nathan pede o código da Stone para terminar a tarefa. Mostrando total falta de empatia com o colega e sensibilidade com a dor alheia. Se você está morrendo não importa, o que importa é eu terminar minha tarefa. 18/10/2023
 
+Não dá pra falar com os caras da stone não, fica num jogo de empurra - 27/10/2023
+
 ----------------
 
 # Perolas do Lucas Segundo (filho do "Que nem pega")
