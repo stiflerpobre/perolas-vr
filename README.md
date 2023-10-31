@@ -235,6 +235,8 @@ Fernando: você ainda é Junior diogo. Diogo: Não cara eu sou um Senior Junior!
 Diogo chuta o lemos o dia todo, daí vira para o Lemos e diz: meu pé não tem cerca - 19/10/2023
 
 Eu não gosto de pessoas com o cabelo do Flopinguim e do jeito dele - 17/10/2023
+
+Ah é o Backupinho é bandidaço (diogo falando só pq ele tem um corte na sombrancelha) - 31/10/2023
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
