@@ -302,6 +302,8 @@ Lemos, você vai usar um terno slim mesmo sendo gordo? - 24/06/2022
  prefiro tomar lambendo - 15/08/2022
  
  se o lucas colocar uma peruca, eu saio com ele desfilando na cidade - 02/05/2023
+
+ É muito gostoso sentir o anel do lado esquerdo no dedão - 16/11/2023
 ___________________________________________________________
 
 # perolas Taws/BemaTaws
@@ -432,6 +434,8 @@ Nathan, o que vc prefere, ensinar o joão programação ou fazer vídeos do Etra
 Damon teve problema de pressão alta, estava sendo encaminhado para Unimed em emergência, antes de sair o Nathan pede o código da Stone para terminar a tarefa. Mostrando total falta de empatia com o colega e sensibilidade com a dor alheia. Se você está morrendo não importa, o que importa é eu terminar minha tarefa. 18/10/2023
 
 Não dá pra falar com os caras da stone não, fica num jogo de empurra - 27/10/2023
+
+Damon: Isso é coisa de viado, Nathan: ainda mais preto. - 16/11/2023
 
 ----------------
 
