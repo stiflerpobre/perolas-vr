@@ -526,3 +526,11 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 # Jorge (que nem pega)
 
 - Jorge estava arrumando o PC do Lemos. Lemos vira para o Jorge e diz: essa bobeira de trocar a memória é rápido. Jorge diz: pelo menos não levo 15 dias para resolver um Bug igual você!!! A sala toda faz: huummmmmm e o Lemos fica vermelho, não sabemos se de vergonha ou raiva. - 28/09/2023
+
+--------
+
+# Isabella RH
+
+- O Lemos podia ser uma carta de clash royale - 28/12/2023
+
+--------
