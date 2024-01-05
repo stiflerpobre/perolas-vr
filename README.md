@@ -239,6 +239,8 @@ Eu não gosto de pessoas com o cabelo do Flopinguim e do jeito dele - 17/10/2023
 Ah é o Backupinho é bandidaço (diogo falando só pq ele tem um corte na sombrancelha) - 31/10/2023
 
 Temos que comer 20 minutos depois de almoçar - 04/12/2023
+
+O Jorge hoje é abobado - 05/12/2024
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
