@@ -536,3 +536,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - O Lemos podia ser uma carta de clash royale - 28/12/2023
 
 --------
+
+# Daegrick
+
+- "Léo, você me libera?" Leo: "Eu não, lá ele" - 16/01/2024
